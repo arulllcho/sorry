@@ -1,0 +1,1 @@
+Maaf ya udah bikin kamu sakit hati. Aku tau mungkin maaf ku juga ga bisa bikin kamu ga sebel lagi. Aku udah gatau mau gimana nay, ini mungkin salah satu caraku biar kita baikan lagi. Aku gamau nay kita berantem terus :( gapapaa ga harus sekarang kok, isokeyy aku tunggu kamu sampe bener bener maafin aku nay.
